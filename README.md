@@ -1,1 +1,1 @@
-# helloworld i will write about myself, here it is, I FUCKING SUCK!
+# helloworld i will write about myself, here it is, no!
